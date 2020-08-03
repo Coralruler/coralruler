@@ -1,6 +1,6 @@
 # *THIS WILL STAY UPDATED*  
 
-* [**My Discord**](https://discord.gg/W6TKBfr)
+* [**My Discord Server**](https://discord.gg/W6TKBfr)
 * [**My Youtube**](https://www.youtube.com/channel/UCO1AqgjEsyDskMuom19ygTg?view_as=subscriber)
 * [**My Twitch**](https://www.twitch.tv/coralruler)
 
