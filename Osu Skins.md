@@ -14,7 +14,7 @@ Discord: **Coral#3332** | DM me on discord if you see me using a skin that isn't
 # [ASecretBox x Coral](https://shigeskinss.s-ul.eu/gEfiNoTv)
 ![](https://i.imgur.com/DBQUhIw.png)
 # [Badeu x Coral](https://shigeskinss.s-ul.eu/gEfiNoTv)
-![](https://i.imgur.com/I3Pl35b.png)
+![](https://i.imgur.com/V6WAxDs.png)
 # [Boop x Coral](https://shigeskinss.s-ul.eu/gEfiNoTv)
 ![](https://i.imgur.com/I3Pl35b.png)
 # [Cookiezi x Coral](https://shigeskinss.s-ul.eu/gEfiNoTv)
