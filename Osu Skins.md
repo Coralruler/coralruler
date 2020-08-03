@@ -22,7 +22,7 @@ Discord: **Coral#3332** | DM me on discord if you see me using a skin that isn't
 # [Coralruler 『Shige』](https://shigeskinss.s-ul.eu/gEfiNoTv)
 ![](https://i.imgur.com/uginnJD.png)
 # [Dumii x Coral](https://shigeskinss.s-ul.eu/gEfiNoTv)
-![](https://i.imgur.com/UOcoFim.png)
+![](https://i.imgur.com/HSlQeAh.png)
 # [Funorange x Coral](https://shigeskinss.s-ul.eu/gEfiNoTv)
 ![](https://i.imgur.com/I3Pl35b.png)
 # [GN x Coral](https://shigeskinss.s-ul.eu/gEfiNoTv)
