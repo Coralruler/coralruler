@@ -11,3 +11,5 @@ Discord: **Coral#3332** | DM me on discord if you see me using a skin that isn't
 
 # [Andros x Coral](https://shigeskinss.s-ul.eu/gEfiNoTv)
 ![](https://i.imgur.com/I3Pl35b.png)
+# [ASecretBox x Coral](https://shigeskinss.s-ul.eu/gEfiNoTv)
+![](https://i.imgur.com/I3Pl35b.png)
