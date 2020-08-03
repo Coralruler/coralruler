@@ -1,6 +1,3 @@
-### Hi there 👋
-
-<!--
-**ALL OF MY CURRENT SKINS**
+### All of my current skins
 
 Andros x Coral
