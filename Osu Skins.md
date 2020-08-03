@@ -43,8 +43,6 @@ Discord: **Coral#3332** | DM me on discord if you see me using a skin that isn't
 ![](https://i.imgur.com/DHNacUj.png)
 # [Lifeline x Coral](https://shigeskinss.s-ul.eu/gEfiNoTv)
 ![](https://i.imgur.com/VlJa2Vp.png)
-# [Mathi x Coral](https://shigeskinss.s-ul.eu/gEfiNoTv)
-![](https://i.imgur.com/I3Pl35b.png)
 # [Merami x Coral](https://shigeskinss.s-ul.eu/gEfiNoTv)
 ![](https://i.imgur.com/bZ35aNB.png)
 # [Mathi x Coral](https://shigeskinss.s-ul.eu/gEfiNoTv)
