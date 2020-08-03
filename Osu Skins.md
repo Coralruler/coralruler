@@ -9,13 +9,13 @@ Discord: **Coral#3332** | DM me on discord if you see me using a skin that isn't
 # ALL OF MY CURRENT SKINS
 
 
-# [Andros x Coral](https://shigeskinss.s-ul.eu/gEfiNoTv)
+# [Andros x Coral](https://mega.nz/file/KlskGa7Y#pF7LXjKeRucwPB1cageiSzM20I21ORsG8gUNUKNs9eg)
 ![](https://i.imgur.com/kb7XEy2.png)
-# [ASecretBox x Coral](https://shigeskinss.s-ul.eu/gEfiNoTv)
+# [ASecretBox x Coral](https://mega.nz/file/z58WxQSA#4i_9yVaB6neryo_HOIXDp_P8jRFcQWtPzdcc4pYV2QQ)
 ![](https://i.imgur.com/3d1Ujcq.png)
-# [Badeu x Coral](https://shigeskinss.s-ul.eu/gEfiNoTv)
+# [Badeu x Coral](https://mega.nz/file/3s8yDSCC#8isWjKwU3DJTtK7tQHkCpWOVD69BxFUhH0W9-hvNEMs)
 ![](https://i.imgur.com/k5qO0Fg.png)
-# [Boop x Coral](https://shigeskinss.s-ul.eu/gEfiNoTv)
+# [Boop x Coral](https://mega.nz/file/2k0WESLa#3ZrpK56GafyenEOMZeLfJ8jIJwfO80Da2DS8lHVsKys)
 ![](https://i.imgur.com/cVMUrTF.png)
 # [Cookiezi x Coral](https://shigeskinss.s-ul.eu/gEfiNoTv)
 ![](https://i.imgur.com/BrqLlJu.png)
