@@ -35,8 +35,6 @@ Discord: **Coral#3332** | DM me on discord if you see me using a skin that isn't
 ![](https://i.imgur.com/JAq6jsT.png)
 # [King 『Selyu』](https://mega.nz/file/rt8QXSQS#EQc57EH7kL9SSGucFlN4l1Q-_o1ZlRWKCYbypg9V7hk)
 ![](https://i.imgur.com/z18rhuc.png)
-# [Knalli x Coral](https://mega.nz/file/z1kmkCKY#52Or2Nb8lqKkSBLCYH4YG0P22rXEYzRoHq1och_gDts)
-![](https://i.imgur.com/4NMnuFg.png)
 # [KoaLigmaQ 『404』](https://mega.nz/file/ql8RzSpS#mO_XKiMqRvjJTX2DH6GSwrXR6uwkakkDLiJF1fmeBp4)
 ![](https://i.imgur.com/PjdYo6C.png)
 # [KoaLigmaQ 『Koa』](https://mega.nz/file/7x9mCApA#2mI8PIunwqZE7na0NoRozcBlpqEo71oflpR2TyM6J2U)
